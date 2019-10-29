@@ -76,6 +76,13 @@ URL: https://buzzoid.com/free-instagram-likes/
 
 </details>
 
+<details>
+<summary>Sukalikes [50] 📝✅</summary>
+<br>
+URL: https://www.sukalikes.net/
+
+</details>
+
 ## Free Followers
 <details>
 <summary>Skweezer [50]</summary>

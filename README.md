@@ -81,6 +81,7 @@ URL: https://buzzoid.com/free-instagram-likes/
 <br>
 URL: https://www.sukalikes.net/
 
+This is indonesian website maybe you need some translator.
 </details>
 
 ## Free Followers
